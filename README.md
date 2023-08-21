@@ -7,3 +7,5 @@ SAY FOREVER EVIL_XD
 <p align="center">
   <img src="https://te.legra.ph/file/58b038b2a08fb2a9431d5.jpg">
 </p>
+
+# Owner = [EVILXD](https://t.me/evilxdpm_bot)
