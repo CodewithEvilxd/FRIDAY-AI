@@ -9,3 +9,5 @@ SAY FOREVER EVIL_XD
 </p>
 
 # Owner = [EVILXD](https://t.me/evilxdpm_bot)
+
+## Support = [INSTAGRAM](https://instagram.com/game_changer.09?igshid=ZGUzMzM3NWJiOQ==)
